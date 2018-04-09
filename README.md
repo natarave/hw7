@@ -1,1 +1,2 @@
-# hw7
+# Задание №7
+ссылка: https://goo.gl/czrsjj
